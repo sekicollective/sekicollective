@@ -1,6 +1,3 @@
-<p align="center">
-  <img width="600" height="600" src="https://files.catbox.moe/q6jcmr.png">
-</p>
 
 
 <p align="center">
@@ -13,5 +10,5 @@
 
 
 <p align="center">
-୭　　╱ 　 ͘ . graphics made by me.
+୭　　╱ 　 ͘ . when you call my name, there will be no answer.
 </p>
