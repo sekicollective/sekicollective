@@ -1,3 +1,6 @@
+<p align="center">
+୭　　╱ 　 ͘ . you'll find moonlit nights strangely empty, because- .
+</p>
 
 
 <p align="center">
@@ -6,9 +9,6 @@
 
 
 
-
-
-
 <p align="center">
-୭　　╱ 　 ͘ . when you call my name, there will be no answer.
+୭　　╱ 　 ͘ . -when you call my name, there will be no answer.
 </p>
