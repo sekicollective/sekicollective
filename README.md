@@ -1,8 +1,11 @@
 
-
 <p align="center">
   
-  ![](https://64.media.tumblr.com/397df800c2a878ebf42137b603b83122/bb62c4188a5212e5-b4/s2048x3072/e5d4682867348eb69f14d42b678ba0bf1e5d2fa7.gifv)
+  ![](https://64.media.tumblr.com/6300707d175024d55f43a0c83e72e1e9/3b60a9a8c78f3128-cd/s1280x1920/88bddf7f6fd5b5a980614f219cd69db7ae44f438.pnj)
+</p>
+<p align="center">
+  
+  ![](https://64.media.tumblr.com/b89ab33f0184fc4adaedfa86f7204b10/3b60a9a8c78f3128-b7/s1280x1920/d31ecefc9d721e744b0c85b7c7896ebe4348f4ec.pnj)
 </p>
 
 $${\color{#b6a56b}✦ \space \color{#a76419}tiger \space \color{#8d0100}baby─}$$   
@@ -26,6 +29,9 @@ $${\color{#b6a56b}we \space \color{#a76419}usually \space \color{#a76419}sit \sp
 
 <p align="center">
   
-  ![](https://64.media.tumblr.com/397df800c2a878ebf42137b603b83122/bb62c4188a5212e5-b4/s2048x3072/e5d4682867348eb69f14d42b678ba0bf1e5d2fa7.gifv)
+  ![](https://64.media.tumblr.com/b89ab33f0184fc4adaedfa86f7204b10/3b60a9a8c78f3128-b7/s1280x1920/d31ecefc9d721e744b0c85b7c7896ebe4348f4ec.pnj)
 </p>
-
+<p align="center">
+  
+  ![](https://64.media.tumblr.com/6300707d175024d55f43a0c83e72e1e9/3b60a9a8c78f3128-cd/s1280x1920/88bddf7f6fd5b5a980614f219cd69db7ae44f438.pnj)
+</p>
